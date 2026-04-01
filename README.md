@@ -41,13 +41,13 @@ La **NRLG / НРЛГ** utilizza la lingua russa in forma cerimoniale e l’alfab
 L’**Unione Veneta (UV)** nasce ufficialmente il **12 marzo 2026**. L’atto di fondazione, firmato da **Mattia Regolini**, sancisce l’unione politica della **RAS** e della **НРЛГ**, creando un unico soggetto sovrano.
 
 ### Consolidamento e Costituzione (2026)
-Il **28 settembre 2026**, l’Assemblea Federale approva la **Costituzione dell’Unione Veneta (UV)**, stabilendo il potere esecutivo nelle mani del Presidente Federale.
+Il **28 marzo 2026**, l’Assemblea Federale approva la **Costituzione dell’Unione Veneta (UV)**, stabilendo il potere esecutivo nelle mani del Presidente Federale.
 
 ---
 
 ## 🎨 Simboli Nazionali
 * **Bandiera Federale UV:** simbolo di unità e sovranità.  
-* **Festa Nazionale:** 12 marzo (Giorno dell’Unione Veneta).
+* **Festa Nazionale:** 28 settenmbre (Giorno dell’Unione Veneta).
 
 ---
 
